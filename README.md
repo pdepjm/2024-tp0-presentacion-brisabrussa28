@@ -1,5 +1,4 @@
 # 2024-tp0-presentacion-brisabrussa28
-2024-tp0-presentacion-brisabrussa28 created by GitHub Classroom
 
 **Legajo: 212.948-6**
 
