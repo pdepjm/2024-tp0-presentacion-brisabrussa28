@@ -25,5 +25,5 @@ Hola, soy Brisa Aylen Brussa, tengo 20 años, soy la mayor de 5 hermanos y es mi
 
 **Foto D:**
 ===
-![fotosad2](https://github.com/pdepjm/2024-tp0-presentacion-brisabrussa28/assets/164513210/253ce272-1020-444f-8989-3185922e9fcd "Prefiero que me den cadena perpetua a sacarme una foto, por favor ayuda estoy sufriendo, llamen al 911")
+![fotosad3](https://github.com/pdepjm/2024-tp0-presentacion-brisabrussa28/assets/164513210/6fc19123-b647-4528-973c-796de1726017 "Tenes que ser cruel para hacerme agrandar mi foto")
 
