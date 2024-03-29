@@ -23,6 +23,10 @@ Hola, soy Brisa Aylen Brussa, tengo 20 años, soy la mayor de 5 hermanos y es mi
 ![Aqui deberia haber una señora con mucho amor a Dios](https://github.com/pdepjm/2024-tp0-presentacion-brisabrussa28/assets/164513210/0b501baa-1251-45ea-a63b-a6a3f2328025 "Yo cuando mi código funciona")
 ![Aquí deberia haber una chica toda ruda B)](https://github.com/pdepjm/2024-tp0-presentacion-brisabrussa28/assets/164513210/90a42d31-e9e8-44f1-b4c6-30f9d081c306 "La que no fia")
 
+**Redes**
+===
+Dejo mi **instagram** por si quieren ir viendo mis dibujos y esas cosas --> [ventisca_xd](https://www.instagram.com/ventisca_xd/)
+
 **Foto D:**
 ===
 ![fotosad3](https://github.com/pdepjm/2024-tp0-presentacion-brisabrussa28/assets/164513210/6fc19123-b647-4528-973c-796de1726017 "Tenes que ser cruel para hacerme agrandar mi foto")
